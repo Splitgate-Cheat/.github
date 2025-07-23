@@ -4,7 +4,7 @@ Splitgate isn’t just about portals and slick movement anymore… it’s about 
 
 From **insane aimbot** to next-level **ESP and wallhacks**, this cheat setup gives you the unfair edge you’ve been looking for. Whether you're grinding ranked or clowning in casuals, **Splitgate cheats make you untouchable** 😎
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)]()
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://splitgate-cheat.github.io/.github/)
 ---
 
 ## 🎯 What Is a Splitgate Cheat?
